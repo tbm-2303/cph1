@@ -1,3 +1,3 @@
 # cph1
-cph-tm246 timothy busk mortensen
+cph-tm246@hotmail.com timothy busk mortensen
 hejsa
